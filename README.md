@@ -1,2 +1,7 @@
 # resources
-Resources I used/ continue to use to learn
+
+### To Read/ Watch
+
+### Read/ Watched and review
+
+### Must revisits
